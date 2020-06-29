@@ -8,3 +8,6 @@ Angelina Jolie ist ein Hollywoodstar. Berühmt wurde sie als Lara Croft in Tomb 
 * sehr cool
 * politisch engagiert
 * toll
+
+Zitat: 
+>Anything that feels good couldn't possibly be bad.
